@@ -1,0 +1,4 @@
+- 👋👀 wassup, I’m @868shark ...
+- 📫 email me for whatever reason at - KILO OSCAR FOUR MIKE BRAVO CHARLIE @gmail.com 
+- (convert the phonetic alphabet to regular letters, make the "four" into its number form, and everything is lowercase)
+- I did it that way to not get spam emails
